@@ -23,7 +23,7 @@
        My eyelids fluttered open like a pair of frail butterflies taking flight. Disoriented, I could make out blurred figures all huddled around me. The unfamiliar still of antiseptic pricked my nostrils as I struggled to sit upright.
        I was at the hospital.
        "OH MY GOODNESS ANGELA THANK GOD YOU ARE FINALLY AWAKE! Aaron! Get the nurse!" My mother exclaimed, tears welled up in her eyes and a look of relief was clearly etched on her face.
-       "Wha... what happened? Why am I here?" I muttered as I 
+       "Wha... what happened? Why am I here?" I muttered. 
 
       
     
